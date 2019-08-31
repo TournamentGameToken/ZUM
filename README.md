@@ -4,6 +4,6 @@ We see great potential for mobile devices in crypto technologies. The applicatio
 
 This is a great opportunity to earn real money by participating in tournaments, for example in Telegram games, which we play to spend our spare time, which is exciting.
 
-In addition, the ZUH team will make an agreement with the projects that wish to form a Community.
+In addition, the ZUM team will make an agreement with the projects that wish to form a Community.
 
-The ZUH community will have the opportunity to review projects and be eligible to participate in free tournaments. Opportunity to earn huge amounts for each project you are involved in. This is exciting.
+The ZUM community will have the opportunity to review projects and be eligible to participate in free tournaments. Opportunity to earn huge amounts for each project you are involved in. This is exciting.
